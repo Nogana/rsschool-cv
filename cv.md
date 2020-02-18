@@ -13,4 +13,5 @@ I am a fast learner who is not afraid of difficulties, enjoy studying something 
 
 ## Education
 Kalmyk State University (2009-2016) *Foreign language and literature*
+
 [English certificate](https://www.efset.org/cert/gZvAqe)
