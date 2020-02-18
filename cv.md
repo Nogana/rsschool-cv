@@ -1,7 +1,7 @@
 rsschool-cv
 # Nogana Abeeva (Borldaeva)
 
-**E-mail:** noganaborldaeva@gmail.com 
+**E-mail:** noganaborldaeva@gmail.com |
 **Phone number:** +7(927)596-59-66 (telegram)
 
 English teacher with a big desire to try a remote job - no matter whether it would be in IT or in some other area. 
