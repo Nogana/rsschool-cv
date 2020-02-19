@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nogana.github.io/rsschool-cv/
